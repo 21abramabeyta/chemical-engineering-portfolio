@@ -14,4 +14,4 @@ Senior Chemical Engineering student at UW–Madison with experience in process o
 
 ## Contact
 - Email: abram.abeyta@outlook.com
-- LinkedIn: (your link)
+- LinkedIn: www.linkedin.com/in/abram-abeyta
